@@ -1,1 +1,1 @@
-[Click here to see this page](https://buster95.github.io/declaratewey/)
+[click para ir al sitio](https://lionelhops.github.io/piciosa/)
